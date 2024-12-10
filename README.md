@@ -1,6 +1,6 @@
 
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/4fRXTsR)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/3OPznMY)***
 
 ![hq720](https://github.com/user-attachments/assets/7dd53ea4-ec35-4cf1-960e-1d760170294b)
 
